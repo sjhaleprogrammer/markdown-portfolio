@@ -1,1 +1,1 @@
-# githubteacher
+# Samuel Hale
